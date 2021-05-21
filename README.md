@@ -1,0 +1,6 @@
+- Hi, I’m @martinwsapient
+- Interested in tea, birds, cryptography, reverse engineering, and pubs
+- Emoji is an abomination, as is Winblows
+- I'm trying to get my head around Quantum Mechanics and the math(s) behind it
+- DE KB3YAP
+- Not a Boojum, but occasionally uffish
